@@ -1,1 +1,0 @@
-# ayajansari.github.io
